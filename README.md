@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, my name is Abdessamad or as i prefer (Samid)
 
 <!--
 **Samid-devs/Samid-devs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
